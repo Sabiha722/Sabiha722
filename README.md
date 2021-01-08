@@ -1,4 +1,4 @@
-### Hey there 👋
+### Hey there https://twitter.com/BanprestoWFC/status/893154607093866496/photo/1
 
 
 - 🔭 I’m currently studing as ... Student at [AIUB](https://www.aiub.edu/)
@@ -9,5 +9,5 @@
 - 📫 How to reach me: ... [Sanjida Najbin](https://www.linkedin.com/in/sanjida-najbin-a4896b17a/)
 - 😄 Pronouns: ... She/her
 - ⚡ Fun fact: ... The more you know, the more you realize you know nothing😇
--->
+
 
