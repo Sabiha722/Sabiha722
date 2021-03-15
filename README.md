@@ -9,5 +9,5 @@
 - 📫 How to reach me: ... [Sanjida Najbin](https://www.linkedin.com/in/sanjida-najbin-a4896b17a/)
 - 😄 Pronouns: ... She/her
 - ⚡ Fun fact: ... The more you know, the more you realize you know nothing😇
-- 📝 [Resume](https://drive.google.com/drive/folders/1yw4aArp_rJuqvB2MtjhGk1msTnDHKDPi)
+- 📝 [Resume](https://drive.google.com/file/d/1q-U-wdbOf9KKa6Lw8lh1BOuMYkskLnZW/view?usp=sharing)
 
