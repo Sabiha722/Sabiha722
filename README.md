@@ -1,6 +1,6 @@
 ### Hey there 👋
 
-
+- 🎓 Currently pursuing my Master's in Information and Communication Engineering at the University of Trento.
 - 🔭 I’v complete studing as ... Student at [AIUB](https://www.aiub.edu/)
 - 🌱 I’m currently searching for ... Job
 - 👯 I’m looking to collaborate on ... Teamwork
