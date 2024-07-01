@@ -1,6 +1,6 @@
 ### Hey there 👋
 
-- 🎓 Currently pursuing my Master's in Information and Communication Engineering at the ... [Università di Trento](https://www.unitn.it/).
+'- 🎓 Currently pursuing my Master's in Information and Communication Engineering at the ... [Università di Trento](https://www.unitn.it/).'
 - 🔭 I’v completed studing in Computer Science & Engineering at ... [AIUB](https://www.aiub.edu/)
 - 🌱 I’m currently searching for ... Part-time Job
 - 👯 Open to collaborating on projects requiring ... teamwork and innovation
